@@ -1,2 +1,8 @@
-When man conquers great peaks, then he will feel empty
-The choice will be between a sense of emptiness and a sense of needlessness in the future of humanity, and this is inevitable. The emptiness of the path will be downwards and the needlessness of the path will be upwards, and both are endless.
+I want you to know that I'm never leaving
+'Cause I'm Mrs. Snow, 'til death we'll be freezing
+you are my home for all of seasons
+So Let's go below zero and hide from the sun
+I love you forever where we'll have some fun
+let's hit the North Pole and live happily
+Please don't cry no tears now, it's Christmas baby
+(song of sia: snowman)
